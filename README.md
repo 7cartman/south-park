@@ -1,2 +1,2 @@
 # south-park
-just for fun
+respect my authoritah!
